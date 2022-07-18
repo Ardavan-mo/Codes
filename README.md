@@ -1,2 +1,2 @@
 # Codes
-I am gone share my codes and projects here!
+I am gonna share my ideas and projects here!
